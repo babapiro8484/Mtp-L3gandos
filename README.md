@@ -1,1 +1,1 @@
-# Mtp-L3gandos
+Bu Script l3gandosbaba tarafından yapılmıştır 🖤
